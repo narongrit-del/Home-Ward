@@ -1,1 +1,0 @@
-# Home-Ward Terms&Coditions
